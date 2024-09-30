@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mahnoorsikandar
 - 👀 I’m interested in learning skills
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on editing
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: english,urdu
 - ⚡ Fun fact: energetic
